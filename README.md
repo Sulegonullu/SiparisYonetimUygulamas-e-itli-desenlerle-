@@ -1,0 +1,1 @@
+# SiparisYonetimUygulamas-e-itli-desenlerle-
